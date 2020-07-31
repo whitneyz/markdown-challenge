@@ -16,7 +16,7 @@ August 18, 1986 | Pink| all things Surinamese| yes|
 when you need to have another viewing point of a situation. 
 My team can count on me to have a positive enviroment.
 
-#####A funny story 
+####A funny story 
 
 From hairdresser, to lawyer, to notary, to taxadviser. At one time I even wanted to be an air traffic controller, but it was for the money :-)
 But I never tought I would work in or study the IT field.
